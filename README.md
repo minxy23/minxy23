@@ -1,7 +1,7 @@
 ### Yasmin 💋✨
 
-- 🎂 17 anos;
-- 🎓 Atualmente cursando Análise e Desenvolvimento de Sistemas no Senai Nami Jaffet;
+- 🎂 18 anos;
+- 🎓 Técnica de Análise e Desenvolvimento de Sistemas pelo Senai Nami Jaffet;
 - 📖 Pretendo fazer uma faculdade na área;
 - 🎮 Gosto de jogos online.
 
